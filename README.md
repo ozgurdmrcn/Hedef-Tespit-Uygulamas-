@@ -1,1 +1,1 @@
-# Hedef-Tespit-Uygulamas-
+# Hedef-Tespit-Uygulaması-
